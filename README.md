@@ -1,1 +1,1 @@
-# encyclopedia-app-banner
+# encyclopedia-app-banne ❌
